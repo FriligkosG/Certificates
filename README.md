@@ -1,3 +1,3 @@
 # Certificates
 
-Here you can find all my work-related certificates
+Here you can find all my certificates
